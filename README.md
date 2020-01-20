@@ -1,6 +1,6 @@
 # 2020
 
-# 20 things I will not allow more than once or twice this year: 
+# 20 things I, David Wawryko, will not allow more than once or twice this year: 
 
 1. Eating junk food from large fast food chains (Including McDonald's, Burger King, Five Guys, St Hubert, KFC, Taco Bell, Wendy's, Tim Hortons)
 2. Checking Twitter other than exactly at 6:30 or 8:30 (Notifications off)
