@@ -9,7 +9,7 @@
 5. Not commiting on public Github projects daily
 6. Watching TikTok other than exactly at 8:00 or 23:11
 7. Not posting on TikTok daily at 8:20 or 20:20
-8. Sitting down on Toilet seats (Only squatting is allowed to minimize time spent in washrooms)
+8. _____
 9. Eating Donuts, or Bagels 
 10. Consuming alcohol
 11. Checking email during business hours (Before 9am or after 5pm only - prioritize SMS MFA and confirmation)
